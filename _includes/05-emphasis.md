@@ -1,0 +1,4 @@
+*Leadership*
+**Teamwork**
+**Interpersonal**
+*Initiative*
